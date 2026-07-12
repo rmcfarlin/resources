@@ -1,0 +1,11 @@
+.DS_Store
+.venv/
+__pycache__/
+*.pyc
+.skillopt-sleep/
+.skillopt-sleep-handoff/
+.skillopt-sleep-handoff.*/
+*.egg-info/
+.env
+outputs/
+node_modules/
