@@ -1,0 +1,109 @@
+# Bible Study Worksheet
+
+## Psalms 84
+
+*Longing for the Courts of the Lord*
+
+> My soul longeth… for the courts of the Lord
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *How amiable are thy tabernacles, O LORD of hosts!*
+
+**2** *My soul longeth, yea, even fainteth for the courts of the LORD: my heart and my flesh crieth out for the living God.*
+
+**3** *Yea, the sparrow hath found an house, and the swallow a nest for herself, where she may lay her young, even thine altars, O LORD of hosts, my King, and my God.*
+
+**4** *Blessed are they that dwell in thy house: they will be still praising thee. Selah.*
+
+**5** *Blessed is the man whose strength is in thee; in whose heart are the ways of them.*
+
+**6** *Who passing through the valley of Baca make it a well; the rain also filleth the pools.*
+
+**7** *They go from strength to strength, every one of them in Zion appeareth before God.*
+
+**8** *O LORD God of hosts, hear my prayer: give ear, O God of Jacob. Selah.*
+
+**9** *Behold, O God our shield, and look upon the face of thine anointed.*
+
+**10** *For a day in thy courts is better than a thousand. I had rather be a doorkeeper in the house of my God, than to dwell in the tents of wickedness.*
+
+**11** *For the LORD God is a sun and shield: the LORD will give grace and glory: no good thing will he withhold from them that walk uprightly.*
+
+**12** *O LORD of hosts, blessed is the man that trusteth in thee.*
+
+---
+
+## 2 · Context
+
+A pilgrim psalm expressing deep longing for the temple and the joy of those who make the journey there, likely written by or for the sons of Korah, temple gatekeepers by vocation. Its central image—the sparrow finding a home even in God's altars, and pilgrims turning a dry valley into a well as they travel—captures both the intimacy and the effort of drawing near to God's presence. Henry reads it as a hymn for anyone who has tasted the sweetness of true worship and wants nothing more than to return to it.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-4
+
+The opening captures pure longing: how lovely is God's dwelling place, the soul faints with desire for the courts of the Lord, heart and flesh crying out for the living God. Even a sparrow finds a home and a swallow a nest near God's altars—an image of how even the smallest creatures find secure rest in His presence. Those who dwell there continually, still praising, are called blessed.
+
+### Verse 5-8
+
+Blessing is redefined as strength found in God, whose ways are set in the pilgrim's heart. Even passing through the dry valley of Baca, such travelers turn it into a place of springs, going from strength to strength until they appear before God in Zion—the journey itself, not just the arrival, is marked by God's provision.
+
+### Verse 9-12
+
+The psalm closes with comparison and confession: one day in God's courts is better than a thousand elsewhere; better to be a doorkeeper in God's house than to dwell comfortably among the wicked. The Lord is both sun and shield, giving grace and glory, withholding no good thing from those who walk uprightly—concluding with the simple declaration that the one who trusts in God is truly blessed.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+Genuine longing for God's presence—not merely for what He provides—is portrayed here as the deepest form of blessedness, worth more than comfort, status, or ease gained elsewhere. Even the difficult journey toward that presence becomes a place of provision, and the humblest role near God (a doorkeeper) outweighs prominence anywhere else.
+
+### Application for life today
+
+Examine whether your pursuit of God is driven by genuine longing for His presence, as this psalm expresses, or has become primarily transactional—seeking only what He provides. When you are passing through your own 'valley of Baca,' a dry or difficult season, look for the springs of provision God supplies along the way rather than waiting only for arrival. Let verse 10's comparison recalibrate your ambitions: choose nearness to God over prominence or comfort elsewhere.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. Does your relationship with God feel more like the longing of verses 1–2, or has it become primarily transactional—what would it take to recover that longing?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. What 'valley of Baca'—a dry, difficult season—are you currently passing through, and where might God be supplying unexpected springs along the way (v. 6)?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. How does verse 10's preference for 'a doorkeeper in the house of my God' over comfort elsewhere challenge your current ambitions or priorities?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*

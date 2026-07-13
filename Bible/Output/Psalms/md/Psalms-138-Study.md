@@ -1,0 +1,101 @@
+# Bible Study Worksheet
+
+## Psalms 138
+
+*I Will Praise Thee with My Whole Heart*
+
+> I will praise thee with my whole heart… for thou hast magnified thy word above all thy name
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *I will praise thee with my whole heart: before the gods will I sing praise unto thee.*
+
+**2** *I will worship toward thy holy temple, and praise thy name for thy lovingkindness and for thy truth: for thou hast magnified thy word above all thy name.*
+
+**3** *In the day when I cried thou answeredst me, and strengthenedst me with strength in my soul.*
+
+**4** *All the kings of the earth shall praise thee, O LORD, when they hear the words of thy mouth.*
+
+**5** *Yea, they shall sing in the ways of the LORD: for great is the glory of the LORD.*
+
+**6** *Though the LORD be high, yet hath he respect unto the lowly: but the proud he knoweth afar off.*
+
+**7** *Though I walk in the midst of trouble, thou wilt revive me: thou shalt stretch forth thine hand against the wrath of mine enemies, and thy right hand shall save me.*
+
+**8** *The LORD will perfect that which concerneth me: thy mercy, O LORD, endureth for ever: forsake not the works of thine own hands.*
+
+---
+
+## 2 · Context
+
+A Davidic psalm of confident, wholehearted thanksgiving that moves from personal worship to a vision of even foreign kings praising God once they hear His word, and closes with quiet trust that God will finish what He has started in the psalmist's life. Henry highlights verse 6's balance—God's exalted transcendence held together with tender attentiveness to the lowly—as the psalm's theological center, resolving any tension between God's greatness and His nearness.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-3
+
+David commits to praise with his whole heart before the rulers of the nations, worshiping toward God's holy temple and praising His name for lovingkindness and truth, because God has magnified His word above all His name. He recalls that when he called, God answered and strengthened him with strength in his soul—an experiential basis for the praise that follows.
+
+### Verse 4-6
+
+A striking expansion follows: all the kings of the earth will praise God once they hear the words of His mouth, singing of His ways because His glory is great. Yet this same exalted God, high above all, still respects the lowly, while knowing the proud only from a distance—transcendence and nearness held together without contradiction.
+
+### Verse 7-8
+
+Even walking through present trouble, David trusts God to revive him, to stretch out His hand against the wrath of enemies, and to save with His right hand. The psalm's confident close entrusts the future entirely to God: He will perfect what concerns David, since His mercy endures forever, and He will not forsake the work of His own hands.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+Wholehearted praise rests securely when it is grounded in both what God has already done and confidence in what He will continue to do—He does not abandon work He has begun. The psalm holds together, without strain, God's surpassing greatness and His attentive care for the lowly, showing that exalted majesty and tender nearness belong to the same character rather than competing with each other.
+
+### Application for life today
+
+Examine whether your own praise tends toward the half-hearted, and consider what it would mean to praise God 'with the whole heart,' as David resolves to do, even amid present difficulty. Let verse 6 correct any instinct to think God's greatness makes Him distant—practice approaching Him as one who is genuinely attentive to your lowliness, not merely aware of it from afar. Rest specifically in verse 8's promise that God will finish what He has begun in you, especially in an area where you feel incomplete or unfinished.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. What would it look like to praise God 'with your whole heart' (v. 1) in a season where your circumstances make that difficult?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. How does verse 6's picture of a God who is both exalted and attentive to the lowly challenge any tendency to see His greatness as distance?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. What unfinished work in your own life do you need to entrust to verse 8's promise that God will perfect what concerns you?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*

@@ -1,0 +1,101 @@
+# Bible Study Worksheet
+
+## Psalms 129
+
+*Many a Time Have They Afflicted Me*
+
+> Many a time have they afflicted me from my youth… yet they have not prevailed against me
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *Many a time have they afflicted me from my youth, may Israel now say:*
+
+**2** *Many a time have they afflicted me from my youth: yet they have not prevailed against me.*
+
+**3** *The plowers plowed upon my back: they made long their furrows.*
+
+**4** *The LORD is righteous: he hath cut asunder the cords of the wicked.*
+
+**5** *Let them all be confounded and turned back that hate Zion.*
+
+**6** *Let them be as the grass upon the housetops, which withereth afore it groweth up:*
+
+**7** *Wherewith the mower filleth not his hand; nor he that bindeth sheaves his bosom.*
+
+**8** *Neither do they which go by say, The blessing of the LORD be upon you: we bless you in the name of the LORD.*
+
+---
+
+## 2 · Context
+
+Psalm 129 speaks on behalf of Israel's long history of affliction, using the vivid image of plowmen cutting long furrows into a back to describe sustained, repeated suffering, before turning to confidence that the Lord has cut the cords of the wicked and will ultimately confound those who hate Zion. Henry reads the psalm's closing image—grass on housetops that withers before it can even be harvested, useless to reapers or gleaners—as a pointed picture of judgment that leaves nothing worth gathering, in deliberate contrast to Israel's own enduring harvest.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-3
+
+The psalm opens with repeated affliction named honestly from youth onward—many times attacked, yet never ultimately overcome. The imagery turns agricultural and violent: plowmen have plowed upon the psalmist's back, cutting long furrows, suffering described with unusual physical specificity.
+
+### Verse 4
+
+A brief but decisive statement of confidence follows: the Lord is righteous, and has cut apart the cords of the wicked—whatever bound or restrained is now severed by God's own righteous action.
+
+### Verse 5-8
+
+The psalm closes with an imprecation against those who hate Zion, wishing on them the fate of grass growing on rooftops, which withers before it can even be pulled up, never providing enough for a reaper's hand or a binder's arm to gather, so that no passerby offers the traditional blessing of the Lord be upon you—judgment pictured as producing nothing worth celebrating or gathering at all.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+Sustained, repeated affliction—even from one's youth—does not have the final word when the Lord Himself acts to cut the cords that bind His people; longevity of suffering is honestly acknowledged without being treated as ultimate defeat. The psalm's closing image of unharvestable grass contrasts sharply with the fruitful, gathered harvest promised elsewhere to those who remain faithful, underscoring how empty opposition to God ultimately proves.
+
+### Application for life today
+
+If you carry affliction that has persisted since your youth, let this psalm's honesty give you permission to name that duration specifically rather than minimizing how long you have carried it. Hold onto verse 4's confidence—the Lord is righteous and has already begun cutting the cords that bind—even while the full outcome remains unseen. Consider what it means that opposition to God's purposes, pictured as unharvestable grass, ultimately produces nothing lasting, and let that shape your patience with situations that currently feel unresolved.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. What affliction have you carried since your youth, as this psalm describes (vv. 1–3), and what would it mean to name its duration honestly to God rather than minimizing it?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. How does verse 4's confidence—that the Lord has already cut the cords of the wicked—shape your patience while a difficult situation's full resolution remains unseen?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. How does the image of unharvestable grass (vv. 6–7) reshape your expectations for opposition or hostility that currently seems to be thriving?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*

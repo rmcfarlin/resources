@@ -1,0 +1,101 @@
+# Bible Study Worksheet
+
+## Psalms 124
+
+*If It Had Not Been the Lord*
+
+> If it had not been the Lord who was on our side… our soul had been overwhelmed
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *If it had not been the LORD who was on our side, now may Israel say;*
+
+**2** *If it had not been the LORD who was on our side, when men rose up against us:*
+
+**3** *Then they had swallowed us up quick, when their wrath was kindled against us:*
+
+**4** *Then the waters had overwhelmed us, the stream had gone over our soul:*
+
+**5** *Then the proud waters had gone over our soul.*
+
+**6** *Blessed be the LORD, who hath not given us as a prey to their teeth.*
+
+**7** *Our soul is escaped as a bird out of the snare of the fowlers: the snare is broken, and we are escaped.*
+
+**8** *Our help is in the name of the LORD, who made heaven and earth.*
+
+---
+
+## 2 · Context
+
+Psalm 124 rehearses a danger so severe that survival is credited entirely to God's intervention, picturing threats through the imagery of predators, floodwaters, and hunters' snares in quick succession. Its repeated conditional—if the Lord had not been on our side—forces the worshiper to imagine the counterfactual outcome before pivoting to blessing and confidence. Henry treats this deliberate imagining of disaster narrowly avoided as a spur to genuine, rather than merely habitual, gratitude.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-3
+
+The psalm opens with a conditional built for repetition: if the Lord had not been on the psalmist's side, when men rose up against him, they would have swallowed him up alive, such was the intensity of the threat imagined in vivid, predatory terms.
+
+### Verse 4-5
+
+The imagery shifts to overwhelming water: the waters would have engulfed, the stream would have gone over the soul, proud waters passing over what could not have withstood them on its own—danger from below and beyond, not merely from human enemies.
+
+### Verse 6-8
+
+The tone turns to praise: blessed be the Lord, who has not given the psalmist as prey to their enemies' teeth. The soul is pictured escaping like a bird from the snare of hunters, the snare broken, the escape complete. The psalm closes with a settled confession: help is in the name of the Lord, maker of heaven and earth—the same title used to close Psalm 121, anchoring help once more in God's identity as Creator.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+Deliberately imagining what would have happened without God's specific intervention—being swallowed, overwhelmed, or caught—is a legitimate way to deepen gratitude, turning survival from a vague sense of relief into a pointed recognition of rescue. Confidence for whatever comes next rests not in one's own resilience but in the same God identified elsewhere as maker of heaven and earth.
+
+### Application for life today
+
+Take time to honestly imagine, as this psalm does, what a past danger would have become without God's specific intervention, rather than moving past survival too quickly to notice it. Let the psalm's imagery of escaping a snare (v. 7) shape how you describe a recent deliverance to others—complete, decisive, not merely a near miss you managed yourself. Return to the closing confession—help is in the name of the Lord, maker of heaven and earth—as a steadying anchor before facing whatever threat currently concerns you.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. What past danger in your life becomes more vivid, and more clearly God's rescue, when you honestly imagine what would have happened without His intervention (vv. 1–5)?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. How does the image of a soul escaping 'as a bird out of the snare' (v. 7)—complete and decisive—describe a deliverance you have experienced but perhaps under-celebrated?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. What would it mean to genuinely rest in the closing confession—'our help is in the name of the Lord, who made heaven and earth' (v. 8)—before your next difficult situation?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*

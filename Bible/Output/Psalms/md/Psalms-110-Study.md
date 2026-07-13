@@ -1,0 +1,99 @@
+# Bible Study Worksheet
+
+## Psalms 110
+
+*Sit at My Right Hand*
+
+> The Lord said unto my Lord, Sit thou at my right hand, until I make thine enemies thy footstool
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *The LORD said unto my Lord, Sit thou at my right hand, until I make thine enemies thy footstool.*
+
+**2** *The LORD shall send the rod of thy strength out of Zion: rule thou in the midst of thine enemies.*
+
+**3** *Thy people shall be willing in the day of thy power, in the beauties of holiness from the womb of the morning: thou hast the dew of thy youth.*
+
+**4** *The LORD hath sworn, and will not repent, Thou art a priest for ever after the order of Melchizedek.*
+
+**5** *The Lord at thy right hand shall strike through kings in the day of his wrath.*
+
+**6** *He shall judge among the heathen, he shall fill the places with the dead bodies; he shall wound the heads over many countries.*
+
+**7** *He shall drink of the brook in the way: therefore shall he lift up the head.*
+
+---
+
+## 2 · Context
+
+One of the most quoted Old Testament passages in the New Testament, Psalm 110 records God's own words installing a coming king who is also, remarkably, a priest forever after the order of Melchizedek—a combination no ordinary Israelite king (barred from priestly duties by the Law) could ever hold. Jesus Himself uses verse 1 to press the Pharisees on how David's own son could also be called David's Lord (Matthew 22:41–46), and Hebrews builds an extended argument on the Melchizedek priesthood named here. Henry reads the psalm as unmistakably Messianic, pointing beyond any merely human ruler to Christ's unique kingship and priesthood combined.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-3
+
+God's own declaration opens the psalm: the Lord says to 'my Lord'—a title David himself uses for someone greater than himself—sit at My right hand until I make Your enemies Your footstool. A rod of strength will go out of Zion, ruling in the midst of enemies; the king's people are pictured as willing volunteers in the day of His power, arrayed in holy splendor, His origin described in language evoking the dew of the morning.
+
+### Verse 4-5
+
+God's sworn oath follows, one He will not take back: You are a priest forever, after the order of Melchizedek—a priesthood not inherited through the Levitical line but established directly by divine oath, uniting royal and priestly office in a way the Law itself never permitted for Israel's kings. The Lord at this king's right hand is pictured striking through kings in the day of His wrath.
+
+### Verse 6-7
+
+The psalm closes with a picture of decisive judgment among the nations, filling the earth with the dead and wounding rulers over many countries, followed by an image of quiet sustenance amid conquest—drinking from the brook along the way, then lifting up the head in victory.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+This psalm describes a king who is also a priest by direct divine oath rather than human lineage, a combination that no ordinary occupant of David's throne could fulfill, pointing unmistakably beyond any historical king toward the Messiah. Christ's own use of this psalm establishes that the promised king is David's Lord as much as his descendant—fully sharing in the honor and authority of God's own right hand.
+
+### Application for life today
+
+Let this psalm deepen your confidence in Christ's present, active reign—He is described as already seated at God's right hand, actively ruling, not merely awaiting a future coronation. Consider what it means that Christ's priesthood, unlike any human priest's, is permanent and established by divine oath rather than lineage—your access to God through Him rests on something that cannot be revoked or interrupted. Reflect on how Jesus' own use of this psalm to challenge the Pharisees' limited categories for the Messiah might challenge any similarly limited categories you bring to who He is.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. How does picturing Christ as already, presently reigning at God's right hand (v. 1)—not merely a future hope—change how you relate to His authority today?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. What difference does it make to you that Christ's priesthood rests on an unbreakable divine oath (v. 4) rather than on human qualification or lineage?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. How does Jesus' own use of this psalm to expand the Pharisees' expectations of the Messiah (Matthew 22:41–46) challenge any limited categories you might still bring to who He is?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*

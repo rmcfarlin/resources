@@ -1,0 +1,103 @@
+# Bible Study Worksheet
+
+## Psalms 137
+
+*By the Rivers of Babylon*
+
+> By the rivers of Babylon, there we sat down, yea, we wept, when we remembered Zion
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *By the rivers of Babylon, there we sat down, yea, we wept, when we remembered Zion.*
+
+**2** *We hanged our harps upon the willows in the midst thereof.*
+
+**3** *For there they that carried us away captive required of us a song; and they that wasted us required of us mirth, saying, Sing us one of the songs of Zion.*
+
+**4** *How shall we sing the LORD’S song in a strange land?*
+
+**5** *If I forget thee, O Jerusalem, let my right hand forget her cunning.*
+
+**6** *If I do not remember thee, let my tongue cleave to the roof of my mouth; if I prefer not Jerusalem above my chief joy.*
+
+**7** *Remember, O LORD, the children of Edom in the day of Jerusalem; who said, Rase it, rase it, even to the foundation thereof.*
+
+**8** *O daughter of Babylon, who art to be destroyed; happy shall he be, that rewardeth thee as thou hast served us.*
+
+**9** *Happy shall he be, that taketh and dasheth thy little ones against the stones.*
+
+---
+
+## 2 · Context
+
+Psalm 137 gives voice to exile's rawest grief: captives in Babylon, mocked by captors demanding cheerful songs of Zion, respond instead with silence, tears, and a fierce vow never to forget Jerusalem. Its closing verses, wishing violent judgment on Babylon and Edom, are among the most difficult in the Psalter; Henry and MacArthur-style readers alike treat them not as a personal manual for vengeance but as the raw cry of an oppressed people entrusting ultimate justice to God, using the era's own harsh conventions of warfare to express the depth of the wrong done to them.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-3
+
+The exiles sit by Babylon's rivers and weep as they remember Zion, hanging their harps on the willows rather than play them. Their captors compound the cruelty by demanding a song—specifically 'one of the songs of Zion'—turning worship itself into an instrument of mockery.
+
+### Verse 4-6
+
+The exiles' answer is a vow, not a performance: how could they sing the Lord's song in a foreign land? They swear that if they ever forget Jerusalem, their right hand should lose its skill and their tongue cling to the roof of their mouth—loyalty to the holy city bound to their own capacity to sing and speak at all.
+
+### Verse 7-9
+
+The psalm closes with an imprecation against Edom, who gloated over Jerusalem's fall, and Babylon, the destroyer itself, calling for the same devastation to be repaid to them. The final, jarring lines should be read as the outcry of a violated people appealing to God's own justice using the brutal conventions of ancient warfare, not as a template for personal vengeance—Scripture records the cry honestly without endorsing it as a model for how individuals should treat their own enemies.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+Genuine grief over loss and displacement is allowed its full, unfiltered voice in Scripture, including anger and imprecation, rather than being smoothed into premature composure. The psalm's raw honesty about desiring justice against those who devastated Jerusalem is left with God, its rightful judge, rather than acted out by human hands—a distinction crucial to reading its harshest lines rightly.
+
+### Application for life today
+
+If you carry grief over a loss that others expect you to have moved past, let this psalm's refusal to perform cheerfulness on demand validate your own honest sorrow. Notice the difference between voicing anger and pain to God, as this psalm does, and taking vengeance into your own hands—practice the former while resisting the latter. Consider what it means to keep a costly vow of loyalty, as the exiles do toward Jerusalem, to something precious that present circumstances threaten to erode from memory.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. Where do you feel pressure to perform composure over a loss you have not actually resolved, and how does this psalm's honesty free you from that?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. How does the psalm model bringing anger and desire for justice to God directly, rather than either suppressing it or acting on it yourself?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. What precious loyalty—like the exiles' vow never to forget Jerusalem (vv. 5–6)—do you need to guard more deliberately in your own life?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*

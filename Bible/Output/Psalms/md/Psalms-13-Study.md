@@ -1,0 +1,97 @@
+# Bible Study Worksheet
+
+## Psalms 13
+
+*How Long, O Lord?*
+
+> How long wilt thou forget me, O Lord?
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *How long wilt thou forget me, O LORD? for ever? how long wilt thou hide thy face from me?*
+
+**2** *How long shall I take counsel in my soul, having sorrow in my heart daily? how long shall mine enemy be exalted over me?*
+
+**3** *Consider and hear me, O LORD my God: lighten mine eyes, lest I sleep the sleep of death;*
+
+**4** *Lest mine enemy say, I have prevailed against him; and those that trouble me rejoice when I am moved.*
+
+**5** *But I have trusted in thy mercy; my heart shall rejoice in thy salvation.*
+
+**6** *I will sing unto the LORD, because he hath dealt bountifully with me.*
+
+---
+
+## 2 · Context
+
+Among the shortest and most concentrated laments in the Psalter, Psalm 13 gives voice to prolonged, unresolved suffering without pretending it has already been fixed. David’s fourfold “how long” names delayed answers to prayer, felt divine absence, inner sorrow, and a triumphant enemy—yet the psalm pivots, in the space of two verses, from anguish to trust and song. Henry treats it as proof that honest complaint and settled faith are not opposites but companions in real prayer.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-2
+
+Fourfold complaint: how long will God forget, hide His face, leave sorrow in the soul, and let the enemy be exalted? The repetition conveys exhaustion—this is not a single bad day but an unresolved, wearying season.
+
+### Verse 3-4
+
+Petition: “Consider and hear me… lighten mine eyes, lest I sleep the sleep of death,” lest the enemy rejoice at his fall. The request is concrete and almost physical—renewed strength and attention, not abstract comfort.
+
+### Verse 5-6
+
+A decisive turn without a change in circumstances: “But I have trusted in thy mercy… I will sing unto the Lord, because he hath dealt bountifully with me.” Faith reaches forward and claims God’s goodness before the crisis is visibly resolved.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+Genuine faith can hold together raw complaint about God’s apparent silence and confident trust in His mercy—Psalm 13 shows both can be prayed honestly in the very same breath.
+
+### Application for life today
+
+Give yourself permission to pray the “how long” questions instead of suppressing them; God can bear honest lament. But don’t stop there—like David, deliberately choose to trust God’s mercy and even to sing before your circumstances change, as an act of faith rather than denial. Let this short psalm become a template for prayer on the hardest, longest days.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. What “how long” question have you been afraid to bring honestly to God?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. What would it look like to ask God to “lighten mine eyes” in your current weariness?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. How can you practice trusting and even singing before your circumstances actually change?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*

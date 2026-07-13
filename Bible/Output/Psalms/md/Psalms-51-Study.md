@@ -1,0 +1,135 @@
+# Bible Study Worksheet
+
+## Psalms 51
+
+*Create in Me a Clean Heart*
+
+> Create in me a clean heart, O God
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *Have mercy upon me, O God, according to thy lovingkindness: according unto the multitude of thy tender mercies blot out my transgressions.*
+
+**2** *Wash me throughly from mine iniquity, and cleanse me from my sin.*
+
+**3** *For I acknowledge my transgressions: and my sin is ever before me.*
+
+**4** *Against thee, thee only, have I sinned, and done this evil in thy sight: that thou mightest be justified when thou speakest, and be clear when thou judgest.*
+
+**5** *Behold, I was shapen in iniquity; and in sin did my mother conceive me.*
+
+**6** *Behold, thou desirest truth in the inward parts: and in the hidden part thou shalt make me to know wisdom.*
+
+**7** *Purge me with hyssop, and I shall be clean: wash me, and I shall be whiter than snow.*
+
+**8** *Make me to hear joy and gladness; that the bones which thou hast broken may rejoice.*
+
+**9** *Hide thy face from my sins, and blot out all mine iniquities.*
+
+**10** *Create in me a clean heart, O God; and renew a right spirit within me.*
+
+**11** *Cast me not away from thy presence; and take not thy holy spirit from me.*
+
+**12** *Restore unto me the joy of thy salvation; and uphold me with thy free spirit.*
+
+**13** *Then will I teach transgressors thy ways; and sinners shall be converted unto thee.*
+
+**14** *Deliver me from bloodguiltiness, O God, thou God of my salvation: and my tongue shall sing aloud of thy righteousness.*
+
+**15** *O Lord, open thou my lips; and my mouth shall shew forth thy praise.*
+
+**16** *For thou desirest not sacrifice; else would I give it: thou delightest not in burnt offering.*
+
+**17** *The sacrifices of God are a broken spirit: a broken and a contrite heart, O God, thou wilt not despise.*
+
+**18** *Do good in thy good pleasure unto Zion: build thou the walls of Jerusalem.*
+
+**19** *Then shalt thou be pleased with the sacrifices of righteousness, with burnt offering and whole burnt offering: then shall they offer bullocks upon thine altar.*
+
+---
+
+## 2 · Context
+
+Superscription: to the chief musician, a psalm of David, when Nathan the prophet came unto him, after he had gone in to Bathsheba (2 Sam 11–12). This is the greatest of the seven penitential psalms. Henry calls it a pattern for true repentance: conviction of sin, plea for mercy, confession, longing for renewal, and resolve to teach others. MacArthur-style notes stress that David does not minimize his guilt (adultery and murder) yet appeals wholly to God's "lovingkindness" and "tender mercies," never to his own righteousness. The psalm moves from forgiveness (1–9) to renewal (10–12) to restored usefulness and worship (13–19), a model for any believer under conviction.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-2
+
+David appeals first to God's mercy and lovingkindness, not to excuses: "Have mercy upon me, O God... blot out my transgressions... wash me... cleanse me from my sin." Three verbs—blot out, wash, cleanse—show sin as a stain needing removal from without, not a flaw he can scrub away himself.
+
+### Verse 3-6
+
+He acknowledges his transgression is ever before him, confesses he has sinned "against thee only," and traces guilt back to conception ("shapen in wickedness"), while affirming God desires truth in the inward parts. True repentance owns sin fully and welcomes God's inward searching rather than hiding it.
+
+### Verse 7-9
+
+"Purge me with hyssop, and I shall be clean; wash me, and I shall be whiter than snow." The hyssop recalls Passover and cleansing rites—forgiveness has always come through blood and washing, not self-effort. He asks to hear joy and gladness again and for God to hide His face from his sins, not from him.
+
+### Verse 10-12
+
+The heart of the psalm: "Create in me a clean heart, O God; and renew a right spirit within me." "Create" is the word for making from nothing—only God can make a new heart. He pleads not to be cast away, for the Holy Spirit to remain, and for restored "joy of thy salvation," showing that assurance, not just forgiveness, had been lost.
+
+### Verse 13-15
+
+Restoration will bear fruit: "Then will I teach transgressors thy ways... sinners shall be converted unto thee." He also asks deliverance from bloodguiltiness, promising his tongue will sing of God's righteousness. Forgiven sinners become useful witnesses to others.
+
+### Verse 16-19
+
+God desires no mere ritual sacrifice but "a broken spirit... a broken and a contrite heart." David prays for Zion's good, that right sacrifices might again be offered—showing personal repentance cares about the wider community of worship, not only private relief.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+Psalm 51 teaches that true repentance combines unflinching confession with confident appeal to God's mercy alone. Forgiveness and inward renewal are both gifts only God can give—cleansing (vv. 1–9) and re-creation of the heart (vv. 10–12)—and both issue in restored joy, usefulness, and worship (vv. 13–19). The psalm refuses cheap grace and refuses despair, holding both together.
+
+### Application for life today
+
+When conviction comes, follow David's order: name the sin specifically before God rather than managing your image before people. Ask for a created clean heart, not merely better behavior—only God re-makes the inward man. Expect restored usefulness, not just relief: forgiven people teach, sing, and serve. Remember God is not looking for elaborate performance to earn back favor, but a broken and contrite heart, which He never despises.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. Where do you tend to minimize or explain away sin rather than confess it as David does in verses 3–6?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. What would it look like to ask God to "create" something new in your heart rather than just try harder?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. Who might benefit if your experience of God's mercy turned into teaching or encouraging others, the way verse 13 describes?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*

@@ -1,0 +1,101 @@
+# Bible Study Worksheet
+
+## Psalms 101
+
+*I Will Behave Myself Wisely in a Perfect Way*
+
+> I will behave myself wisely in a perfect way… I will walk within my house with a perfect heart
+
+**KJV** · Standalone study handout
+
+---
+
+## 1 · The Word (KJV)
+
+**1** *I will sing of mercy and judgment: unto thee, O LORD, will I sing.*
+
+**2** *I will behave myself wisely in a perfect way. O when wilt thou come unto me? I will walk within my house with a perfect heart.*
+
+**3** *I will set no wicked thing before mine eyes: I hate the work of them that turn aside; it shall not cleave to me.*
+
+**4** *A froward heart shall depart from me: I will not know a wicked person.*
+
+**5** *Whoso privily slandereth his neighbour, him will I cut off: him that hath an high look and a proud heart will not I suffer.*
+
+**6** *Mine eyes shall be upon the faithful of the land, that they may dwell with me: he that walketh in a perfect way, he shall serve me.*
+
+**7** *He that worketh deceit shall not dwell within my house: he that telleth lies shall not tarry in my sight.*
+
+**8** *I will early destroy all the wicked of the land; that I may cut off all wicked doers from the city of the LORD.*
+
+---
+
+## 2 · Context
+
+Attributed to David, Psalm 101 reads as a ruler's personal vow of integrity—both in private character and in the kind of people he will allow near his household and administration. Henry treats it as a model for anyone in leadership: private character and public policy are not separate compartments, and tolerance for wickedness close at hand eventually corrupts what is built further out. MacArthur-style notes note the psalm's unusually concrete, almost administrative language—about who gets to stay and who must be removed—as evidence of a serious, not merely sentimental, commitment.
+
+---
+
+## 3 · Verse-by-Verse Commentary
+
+*The notes below cover the whole chapter in one place—read with the KJV text above.*
+
+### Verse 1-3
+
+The psalm opens with praise paired immediately with resolve: David will sing of mercy and judgment, and behave wisely in a perfect way, asking specifically when God will come to him. The commitment is stated in the negative as much as the positive—he will set no wicked thing before his eyes, will hate the work of those who turn aside, and will let no such thing cling to him.
+
+### Verse 4-5
+
+The vow narrows further to internal disposition and immediate relationships: a froward, perverse heart will be kept at a distance, no wicked person known or tolerated close by. Slander is named specifically—whoever privately slanders a neighbor will be cut off—along with pride and haughtiness, which will not be endured in his presence.
+
+### Verse 6-8
+
+The vow turns constructive: his eyes will be on the faithful of the land, so that they may dwell with him; the one who walks in a perfect way will be allowed to serve him. Deceitful workers and liars, by contrast, will not remain in his house or before his eyes; he commits to actively, even 'early,' cutting off the wicked from the city of the Lord.
+
+---
+
+## 4 · Meaning & Application
+
+### Meaning
+
+Genuine integrity is not merely a private feeling of good intention but a concrete, enforceable commitment about who and what one will allow close—both within one's own heart and within one's household, workplace, or sphere of influence. Leadership, whether over a nation, a family, or one's own life, requires actively choosing the faithful and actively excluding the deceitful, rather than passively hoping character will sort itself out.
+
+### Application for life today
+
+Consider your own 'house'—family, workplace, friendships, or inner life—and ask honestly what this psalm's specific vows (no slander tolerated, no pride indulged, no deceit welcomed) would require you to actually change, not merely intend. Notice that David's vow begins with his own heart (v. 2) before it extends outward to others; integrity in influence starts with integrity in private. Identify one concrete relationship or habit where this psalm calls you to actively choose faithfulness rather than passively hope it appears.
+
+---
+
+## 5 · Reflect & Respond
+
+*Write your answers in the space below. There are no “right length” answers—honesty before God is the aim.*
+
+### 1. Where in your own 'house'—family, work, or inner life—do you need to move from passive hope to active commitment, as this psalm's specific vows model (vv. 3–5)?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 2. How does David's resolve to keep a 'perfect heart' privately (v. 2) before extending that integrity outward challenge the order in which you usually address character?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+### 3. What deceitful or prideful influence, however small, might you need to actively 'cut off' rather than merely tolerate (vv. 5, 7–8)?
+
+
+
+_______________________________________________
+
+_______________________________________________
+
+---
+
+**Name:** ____________________________  **Date:** ______________  **Group / Church:** ________________________
+
+*Sources: King James Version (public domain); Matthew Henry, Commentary on the Whole Bible (themes summarized); Expository themes consistent with MacArthur Study Bible tradition (paraphrased, not quoted). Scripture: King James Version (public domain).*
