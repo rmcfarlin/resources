@@ -1,0 +1,13 @@
+{
+  "name": "fallout-pushups",
+  "version": "1.0.0",
+  "private": true,
+  "type": "module",
+  "description": "Vault-Tec Strength Clearance — printable 8-week push-up protocol (Fallout light-print theme)",
+  "scripts": {
+    "generate": "node scripts/generate-protocol.mjs"
+  },
+  "dependencies": {
+    "pdfkit": "^0.19.1"
+  }
+}
